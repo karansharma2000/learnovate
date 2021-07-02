@@ -1,1 +1,1 @@
-All the layers in the psd converted to photoshop
+All the layers in the psd converted to images by photoshop
